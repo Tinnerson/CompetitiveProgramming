@@ -1,1 +1,1 @@
-no webscrapping sadge. also note some these are from like years ago when i was very bad, and only uploading them now so keep in midn haha
+no webscrapping sadge (manually added old ones so maybe some errors...?). also note some these are from like years ago when i was very bad, aka some of these are abominations of abominations like actually terrible. so uh only uploading them here now so keep in midn hahah
